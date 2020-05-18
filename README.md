@@ -5,4 +5,4 @@
 
 **Relatore:** Luca Heltai
 
-Data di laurea: 17 luglio 2020
+Appello di laurea: 27 luglio 2020
